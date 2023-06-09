@@ -11,4 +11,4 @@ hit me up on Discord:
 Stanley#5180
 
 or to contact me through one of my socials:
-https://stanley.bio
+https://stanley.bio/
