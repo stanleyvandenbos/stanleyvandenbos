@@ -8,7 +8,7 @@ Feel free to send me an e-mail:
 stanleyvandenbos@gmail.com
 
 hit me up on Discord:
-Stanley#5180
+.ovpn
 
 or to contact me through one of my socials:
 https://stanley.bio/
