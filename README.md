@@ -1,6 +1,6 @@
 # 🐧 About Me
 
-Hello! My name is Stanley van den Bos. I am 21 years old and I live in the Netherlands. My GitHub profile is mainly used for some hobby projects of mine, but maybe I'll work on bigger projects in the future too!
+Hello! My name is Stanley van den Bos. I am 22 years old and I live in the Netherlands. My GitHub profile is mainly used for some hobby projects of mine, but maybe I'll work on bigger projects in the future too!
 
 # 📧 Have any questions?
 
